@@ -1,3 +1,6 @@
+this is NOT offical release cus sum of it no work
+
+
 this was assitewd by ai
 
 
